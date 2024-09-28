@@ -1,2 +1,1 @@
 Ryo Kumakawa
-18
